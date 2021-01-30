@@ -1,2 +1,1 @@
-# weeboi7
-:)
+# PROC41-Template
